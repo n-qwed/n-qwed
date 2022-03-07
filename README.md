@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @n-qwed
+- [hp](https://qwed.work/)
+- [ios app](https://apps.apple.com/us/app/generative-circlelines/id1585085862)
+- [android app](https://play.google.com/store/apps/details?id=com.qwedworksapp)
+- [opensea](https://opensea.io/collection/qwed-works)
+- [instagram](https://www.instagram.com/qwedwork)
